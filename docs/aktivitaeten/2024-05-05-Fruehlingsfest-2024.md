@@ -42,7 +42,7 @@ In Nordrhein-Westfalen hat Nils, DB6NIL zu einem Treffen in dem [Bochumer Westpa
 
 ![]()
 
-Auf 2m haben sich dann schnell DO2WIN, Maike und DL1EY, Nils gemeldet, die auch dazustießen. Nach einem kurzen Plausch haben sie einen Platz zum Aufbauen der PAC 12 und dem FT-710 entdeckt. Leider gab es in dem Park mittelschwere Störungen, möglicherweise von einer nahegelegenen Industrieanlage. Die Bandbedingungen auf 20m waren, vorsichtig ausgedrückt, nicht optimal. Trotzdem kamen QSO's zustande
+Auf 2m haben sich dann schnell DO2WIN, Maike und DL1EY, Sven gemeldet, die auch dazustießen. Nach einem kurzen Plausch haben sie einen Platz zum Aufbauen der PAC 12 und dem FT-710 entdeckt. Leider gab es in dem Park mittelschwere Störungen, möglicherweise von einer nahegelegenen Industrieanlage. Die Bandbedingungen auf 20m waren, vorsichtig ausgedrückt, nicht optimal. Trotzdem kamen QSO's zustande.
 
 ![]()
 
@@ -54,7 +54,7 @@ Das Mascotchen Shacky, ein Chamäleon, hat natürlich alles aufmerksam beobachte
 
 ![]()
 
-## Niededrsachsen
+## Niedersachsen
 
 DG7PX, Nikolas und Tom, für den Tag DN4PX, waren schon um 7:00h UTC auf [Krautsand, DE-0]() unterwegs. Aufgebaut wurde eine 2m Station mit einer Antenne die der Antennen-Meister Nikolas in der Nacht noch zusammengebaut hat. Auch war eine 15m Station am Start. Die Antenne ist auch von Nikolas gebaut. Tom, als DN4PX, hat auf 15m losgelegt. Das erste QSO war mit DK1BOU auch einem Draussenfunker, der zu der Zeit aber noch zu Hause war. Als nächstes meldete sich JH1CML, Japan. Was für ein zweites QSO überhaupt!
 
