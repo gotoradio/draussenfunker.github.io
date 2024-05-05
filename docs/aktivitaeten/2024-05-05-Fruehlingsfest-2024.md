@@ -22,7 +22,7 @@ Dannach die KW-Station, bestehend aus einem FT-891 und einer [EFHW](https://drau
 
 ![]()
 
-Auf UKW haben wir angefangen zu rufen und es haben sich einige Stationen reingemeldet, so das manche ihre 10 QSO's, die für eine erfolgreiche POTA-Aktivierung benötigt werden, schon zusammen hatten. Danach gings an die Kurzwelle. Auf 20m eine freie Frequenz gefunden und gerufen. Hat sich eine Station reingemeldet, konnte sie sich im Peak über QSO's mit 5 verschiedenen OPs freuen, da alle im Kreis um das Gerät saßen und das Mic rumgereicht wurde. Zitat einer Polnischen Station: "Wow you got many operators there"
+Auf UKW haben wir angefangen zu rufen und es haben sich einige Stationen reingemeldet, so das manche ihre 10 QSO's, die für eine erfolgreiche POTA-Aktivierung benötigt werden, schon zusammen hatten. Danach gings an die Kurzwelle. Auf 20m eine freie Frequenz gefunden und gerufen. Hat sich eine Station reingemeldet, konnte sie sich im Peak über QSO's mit 5 verschiedenen OPs freuen, da alle im Kreis um das Gerät saßen und das Mic herumgereicht wurde. Zitat einer polnischen Station: "Wow you got many operators there"
 
 ![]()
 
@@ -60,6 +60,6 @@ DG7PX, Nikolas und Tom, für den Tag DN4PX, waren schon um 7:00h UTC auf [Krauts
 
 ![]()
 
-Nachmittags ging es dann mit Grill im Garten weiter. DG7PX, Nikolas meinte Scherzhaft, lass mal 15m probieren. Vielleicht bekommen wir ja Greyline Australien. Gesagt getan. Tom, als DN4PX, ging wieder QRV und es meldete sich YE9BJM, Indonesien. Den wollte DG7PX, Nicolas natürlich auch arbeiten, blöd nur das er grade in seine Wurst gebissen hatte…
+Nachmittags ging es dann mit Grill im Garten weiter. DG7PX, Nikolas meinte Scherzhaft, lass mal 15m probieren. Vielleicht bekommen wir ja Greyline Australien. Gesagt getan. Tom, als DN4PX, ging wieder QRV und es meldete sich YE9BJM, Indonesien. Den wollte DG7PX, Nikolas natürlich auch arbeiten, blöd nur das er grade in seine Wurst gebissen hatte…
 
 ![]()
